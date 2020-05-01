@@ -1,2 +1,4 @@
 # itc134-sp20-explore_california
-#Hi everyone - Jovanni
+#Hi everyone - Jovann 
+
+Thank the heavens it's friday!!! 
